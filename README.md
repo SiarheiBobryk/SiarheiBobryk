@@ -1,3 +1,3 @@
-# My public profile
+# Siarhei Bobryk: Public Profile
 
 WIP
