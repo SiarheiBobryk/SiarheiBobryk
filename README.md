@@ -1,3 +1,3 @@
-# Siarhei Bobryk: Public Profile
+# Public Profile
 
 WIP
